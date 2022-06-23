@@ -1,0 +1,1 @@
+# GitNegi.github.io
